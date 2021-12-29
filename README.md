@@ -1,1 +1,1 @@
-https://BlisterCof.github.io/rsschool-cv/cv
+https://BlisterCof.github.io/rsschool-cv/
